@@ -1,1 +1,1 @@
-# IntroductionToParabolas
+# Introduction To Parabolas
